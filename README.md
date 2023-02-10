@@ -1,4 +1,4 @@
-### 🛠 博客施工中... Coming Soon...
+### 😄 愤怒源于无知
 
 <!--
 **Tifayq/tifayq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
